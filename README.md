@@ -14,10 +14,10 @@ Utilizo esse espaço para organizar e compartilhar meus projetos
 
 
 
-![shanks-one-piece](https://github.com/thiago102030/thiago/assets/161844372/9b31935a-3fde-4eda-80a3-5dfcd59b4345)
 
 
 
 
 
 
+![four-emperors-yonko](https://github.com/thiago102030/thiago/assets/161844372/c63338f6-a64a-47ac-a7e8-8f2718467f39)
